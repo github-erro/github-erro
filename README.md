@@ -1,4 +1,4 @@
-![Uploading image.png…]()
+
 
 <!--
 **github-erro/github-erro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
