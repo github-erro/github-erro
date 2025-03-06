@@ -1,4 +1,8 @@
-![image](https://github.com/user-attachments/assets/fc7a7fd0-c05d-4b13-9357-c006b69b2a5a)
+                                     - ₊˚⊹.  you can sit with me anytime you want    - ₊˚⊹
+             
+             
+             
+             ![image](https://github.com/user-attachments/assets/fc7a7fd0-c05d-4b13-9357-c006b69b2a5a)
 
 
 
