@@ -1,8 +1,7 @@
                                     - ₊˚⊹.  you can sit with me anytime you want    - ₊˚⊹
                       ⊹I like attention, sometimes I hang up because I'm busy with something⊹
                        ₊˚  Don't try to take my ideas or inspiration, or I will bite you  ₊˚      
-![inpas]
-https://vt.tiktok.com/ZSM4xqCvr/                            please follow my friend's account if you don't mind
+                       please follow my friend's account if you don't mind
                 @angthui
  
 
