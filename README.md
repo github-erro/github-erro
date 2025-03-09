@@ -7,8 +7,7 @@
                 @angthui
  ![image](https://github.com/user-attachments/assets/f6807db0-2ec7-4174-9190-53700166c8eb)
    
-![image](https://www.pinterest.com/pin/924786104739713769/)
-
+![image](
 <!--
 **github-erro/github-erro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
