@@ -5,9 +5,8 @@
                        
                        please follow my friend's account if you don't mind
    
- ![image](https://github.com/user-attachments/assets/f6807db0-2ec7-4174-9190-53700166c8eb)
-   
-![image](
+ ![image](https://github.com/user-attachments/assets/f20aec18-1cc2-424a-a35a-d43c99f414b0)
+
 <!--
 **github-erro/github-erro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
