@@ -3,7 +3,7 @@
                        ₊˚  Don't try to take my ideas or inspiration, or I will bite you  ₊˚ 
                                          I'm usually AFK
                        
-                       please follow my friend's account if you don't mind
+                            please follow my friend's account if you don't mind
    
  ![image](https://github.com/user-attachments/assets/f20aec18-1cc2-424a-a35a-d43c99f414b0)
 
